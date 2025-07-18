@@ -1,0 +1,1 @@
+As the designer for POWER HOUR and related ministry events (e.g., Women’s Ministries Week of Prayer, Kesha, Prayer Breakfast), the focus was on creating visually cohesive, spiritually uplifting materials that align with each event’s unique theme while maintaining a unified brand identity.
